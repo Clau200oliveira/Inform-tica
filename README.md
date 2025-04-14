@@ -22,5 +22,5 @@ https://github.com/Clau200oliveira/Inform-tica/blob/main/Primeira%20Apresenta%C3
 
 ## ![image](https://github.com/user-attachments/assets/941c587a-175f-4c06-b776-68de6fd028c2)
 
-
+## https://github.com/Clau200oliveira/Inform-tica/blob/main/arquivo%20educa%C3%A7%C3%A3o%20%201%20(1).xlsx
 
