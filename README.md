@@ -7,6 +7,8 @@ https://github.com/Clau200oliveira/Inform-tica/blob/main/Primeira%20Apresenta%C3
 
 ## Planilha de custos
 
+![Captura de tela 2025-04-14 193343](https://github.com/user-attachments/assets/4b3dad1a-c2f5-4b13-acee-284e49365227)
+
 ## Dados abertos
 [clau.xlsx](https://github.com/user-attachments/files/19596223/clau.xlsx)
 ![Captura de tela 2025-04-03 203154](https://github.com/user-attachments/assets/894cc41d-e40e-4a46-bef6-6eadec786a56)
