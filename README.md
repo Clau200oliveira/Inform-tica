@@ -24,3 +24,4 @@ https://github.com/Clau200oliveira/Inform-tica/blob/main/Primeira%20Apresenta%C3
 
  https://github.com/Clau200oliveira/Inform-tica/blob/main/arquivo%20educa%C3%A7%C3%A3o%20%201%20(1).xlsx
 
+https://github.com/Clau200oliveira/Inform-tica/blob/main/trabalho.pbix
