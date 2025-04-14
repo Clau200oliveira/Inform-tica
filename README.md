@@ -11,6 +11,9 @@ https://github.com/Clau200oliveira/Inform-tica/blob/main/Primeira%20Apresenta%C3
 
 ## Dados abertos
 [clau.xlsx](https://github.com/user-attachments/files/19596223/clau.xlsx)
+
+![Captura de tela 2025-04-14 193153](https://github.com/user-attachments/assets/3a831e77-1fdd-4cb9-96e7-503b01eed91c)
+
 ![Captura de tela 2025-04-03 203154](https://github.com/user-attachments/assets/894cc41d-e40e-4a46-bef6-6eadec786a56)
 
 ## Power Bi
