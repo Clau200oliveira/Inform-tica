@@ -13,4 +13,7 @@ https://github.com/Clau200oliveira/Inform-tica/blob/main/Primeira%20Apresenta%C3
 
 ## Power Bi
 
+## ![image](https://github.com/user-attachments/assets/941c587a-175f-4c06-b776-68de6fd028c2)
+
+
 
