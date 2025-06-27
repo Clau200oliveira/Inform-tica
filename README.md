@@ -25,3 +25,9 @@ https://github.com/Clau200oliveira/Inform-tica/blob/main/Primeira%20Apresenta%C3
  https://github.com/Clau200oliveira/Inform-tica/blob/main/arquivo%20educa%C3%A7%C3%A3o%20%201%20(1).xlsx
 
 https://github.com/Clau200oliveira/Inform-tica/blob/main/trabalho.pbix
+https://dados.gov.br/dados/conjuntos-dados
+https ://github.com/seuusuario/seurepositorio
+
+## https:///share/685dd4d8-cf3c-8001-a0ea-cd0a981d9924
+
+## https:///share/685dd63b-1130-8001-9fb2-ffc28e319a3f
