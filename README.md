@@ -31,3 +31,19 @@ https ://github.com/seuusuario/seurepositorio
 ## https:///share/685dd4d8-cf3c-8001-a0ea-cd0a981d9924
 
 ## https:///share/685dd63b-1130-8001-9fb2-ffc28e319a3f
+
+
+## Sorvetedataset https://fatecspgov.sharepoint.com/:x:/r/sites/Section_INF168.A753.N.077.146.20251/Shared%20Documents/General/sorvete_dataset.xlsx?d=w3dd02de079fa45a2961dc5da6863ec51&csf=1&web=1&e=pmKefJ
+
+## https://fatecspgov.sharepoint.com/:b:/r/sites/Section_INF168.A753.N.077.146.20251/Shared%20Documents/General/PROJ.LIn.pdf?csf=1&web=1&e=uqvvIH
+
+## Temperatura de sorvete [Ice Cream.xlsx](https://github.com/user-attachments/files/20965450/Ice.Cream.xlsx)
+
+## Consumodecerveja [Consumo_cerveja.xlsx](https://github.com/user-attachments/files/20965469/Consumo_cerveja.xlsx) 
+
+[Quantidade de alunos estrangeiros por nacionalidade (1).xlsx](https://github.com/user-attachments/files/20965495/Quantidade.de.alunos.estrangeiros.por.nacionalidade.1.xlsx)
+
+## Sorvete 
+[sorvete.xlsx](https://github.com/user-attachments/files/20965505/sorvete.xlsx)
+
+
