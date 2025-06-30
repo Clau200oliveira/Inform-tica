@@ -48,7 +48,11 @@ https ://github.com/seuusuario/seurepositorio
 
 
 
+
+
 ## certificado inovadores ![83a20705-5e59-4363-b26e-38709b9f0877](https://github.com/user-attachments/assets/07bd624b-677e-40d8-a876-81ab6c2d020b)
+
+## Vídeo sem título ‐ Feito com o Clipchamp (1).mp4
 
 
 
