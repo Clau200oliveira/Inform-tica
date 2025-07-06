@@ -55,11 +55,7 @@ https ://github.com/seuusuario/seurepositorio
 
 [servidores-ativos-2023-06 1 (1).xlsx](https://github.com/user-attachments/files/21048765/servidores-ativos-2023-06.1.1.xlsx)
 
- 
 
-![image](https://github.com/user-attachments/assets/a410d391-33fb-456c-9ca5-47bccf8a97f9)
-
-![Captura de tela 2025-07-04 193953](https://github.com/user-attachments/assets/3edbf000-7286-4f79-9fb3-ef226b1f0432)
 
 ## GRAFICO DA PROVA> ![image](https://github.com/user-attachments/assets/dac3b31c-5859-4136-95df-9e1c7a783a53)
 ![Captura de tela 2025-07-06 122342](https://github.com/user-attachments/assets/b7838c7f-9597-4f74-9b1c-951355392269)
