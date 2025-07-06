@@ -57,8 +57,22 @@ https ://github.com/seuusuario/seurepositorio
 
 
 
+
 ## GRAFICO DA PROVA> ![image](https://github.com/user-attachments/assets/dac3b31c-5859-4136-95df-9e1c7a783a53)
 ![Captura de tela 2025-07-06 122342](https://github.com/user-attachments/assets/b7838c7f-9597-4f74-9b1c-951355392269)
 
 #CALCULOS DA PROVA; https://us.docs.wps.com/module/common/preview/?sid=sIE3XlpBcw62qwwY
+# https://us.docs.wps.com/module/common/preview/?sid=sIE3XlpBcw62qwwY
+
+
+## GABINETE ![Captura de tela 2025-07-06 131954 GABINETE](https://github.com/user-
+attachments/assets/af7f0514-fee0-4519-9fed-8fde70587688)
+
+## DASBOART ![Captura de tela 2025-07-06 132205 DASBOAR](https://github.com/user-attachments/assets/5c7c58e2-ace7-4d20-ac60-80c86b68a345)
+
+lINK REMUNERAÇÃO DE SERVIDORES:## https://us.docs.wps.com/module/common/preview/?sid=sIE3XlpBcw62qwwY
+
+## https://us.docs.wps.com/module/common/preview/?sid=sIE3XlpBcw62qwwY
+
+
 
