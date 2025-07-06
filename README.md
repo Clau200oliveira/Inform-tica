@@ -65,12 +65,12 @@ https ://github.com/seuusuario/seurepositorio
 # https://us.docs.wps.com/module/common/preview/?sid=sIE3XlpBcw62qwwY
 
 
-## GABINETE ![Captura de tela 2025-07-06 131954 GABINETE](https://github.com/user-
+## Gabinete ![Captura de tela 2025-07-06 131954 GABINETE](https://github.com/user-
 attachments/assets/af7f0514-fee0-4519-9fed-8fde70587688)
 
-## DASBOART ![Captura de tela 2025-07-06 132205 DASBOAR](https://github.com/user-attachments/assets/5c7c58e2-ace7-4d20-ac60-80c86b68a345)
+## Dasboart ![Captura de tela 2025-07-06 132205 DASBOAR](https://github.com/user-attachments/assets/5c7c58e2-ace7-4d20-ac60-80c86b68a345)
 
-lINK REMUNERAÇÃO DE SERVIDORES:## https://us.docs.wps.com/module/common/preview/?sid=sIE3XlpBcw62qwwY
+## Link remuneração de servidores:## https://us.docs.wps.com/module/common/preview/?sid=sIE3XlpBcw62qwwY
 
 ## https://us.docs.wps.com/module/common/preview/?sid=sIE3XlpBcw62qwwY
 
