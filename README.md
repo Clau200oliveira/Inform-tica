@@ -59,3 +59,9 @@ https ://github.com/seuusuario/seurepositorio
 
 ## GRAFICO DA PROVA> ![image](https://github.com/user-attachments/assets/dac3b31c-5859-4136-95df-9e1c7a783a53)
 ![Captura de tela 2025-07-06 122342](https://github.com/user-attachments/assets/b7838c7f-9597-4f74-9b1c-951355392269)
+
+#CALCULOS DA PROVA: 
+![Captura de tela 2025-07-06 130331](https://github.com/user-
+attachments/assets/e74966e1-9ba9-44da-9ea0-1536729f13e9)
+
+## ![Captura de tela 2025-07-06 122342](https://github.com/user-attachments/assets/f56fe938-a78e-4533-9599-6b35f772bb86)
